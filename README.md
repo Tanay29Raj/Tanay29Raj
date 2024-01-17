@@ -1,1 +1,1 @@
-Hi, I am Tanay. I am curently pursuing a Masters's degree in Applied Mathematics 
+Hi, I am Tanay. I am curently pursuing a Masters's degree in Applied Mathematics and Scientific Computing. I am very much interested in Financial Mathematics, Data Analytics, Data Science, Machine learning and Deep Learning. Please reach out for more.
